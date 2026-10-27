@@ -23,12 +23,13 @@ I speaker **Spanish and English** (Español e Inglés)
 - There's weird changes in mood, usually wants interactions but at any point wants to be alone and/or not willingly to interact with certain people.
 - If someone makes me uncomfortable it will be noticed by the way I act. 
 
-## I BLOCK AND HIDE FREELY 
+## ⚠️ I BLOCK AND HIDE FREELY !!
 > If your being annoying or clogging screen actions will be taken.
 
 ---
 
 I'm an **AbolishRegret** enjoyer, roughly 85% of my ponies are AbolishRegret. I also watch a bit of Smajor and Mae Maezes.
+
 Fandoms: MCYT, POWCreations, Rain World, Hollow Knight + Silksong, TBOI.
 
 ---
